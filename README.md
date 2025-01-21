@@ -1,5 +1,9 @@
 # The-Privacy-Argument [DRAFT]
 
+The "I don't have anything to hide so why care about privacy" argument.
+
+Tired of tring to get others to understand and care about privacy?
+
 Disclaimer: I also use to enjoy things like short videos etc..., I may say things like sheeple...
  I mean no harm or disrespect. You are reading this because we as a community are dumbfounded on you lack of ability to care about privacy
 
@@ -26,7 +30,13 @@ Disclaimer: I also use to enjoy things like short videos etc..., I may say thing
 - Net neutrality is dead and it’s all your fault because [insert title here] and now you have a data cap that now costs $50 extra a month to go over in paid increments with bandwidth throttling, thank you for not voting/caring about privacy.
 
 - This stolen/sold data can be exploited for political manipulation or to target individuals for harassment.
+  
+- With enough money you can paint the states red or blue, wouldn't you? (alright alright bad joke, want it removed, then suggest a better commit :)
 
+
+ Maybe we can add some media like story of the hactivist and the Snowden documentary or mr robot.
+
+  Oligarchy
 
 # participation in the destruction of autonomy
 

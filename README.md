@@ -2,7 +2,7 @@
 
 The "I don't have anything to hide so why care about privacy" argument.
 
-Tired of tring to get others to understand and care about privacy?
+Tired of tring to get others to understand and care about privacy? Have you mentioned that X app can see all their messages and so on and they still don't care?
 
 Disclaimer: I also use to enjoy things like short videos etc..., I may say things like sheeple...
  I mean no harm or disrespect. You are reading this because we as a community are dumbfounded on you lack of ability to care about privacy

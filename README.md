@@ -54,5 +54,7 @@ Disclaimer: I also use to enjoy things like short videos etc..., I may say thing
 
 - The Disney+ Case: In 2024, Disney tried to use a fine print clause to avoid a wrongful death lawsuit because the deceased’s family had once subscribed to Disney+—a subscription they never intended to be tied to legal immunity. Disney attempted to avoid court proceedings through an arbitration clause buried in its terms of service, effectively sidestepping accountability and transparency.
 
+- Life 360 family tracking app sold data to allstate so your 14 year old kid on that electric scooter made your rates go up, or just being near an accident...
+
 - In 2017, the FTC took action against VTech, a toy manufacturer, for collecting personal information from children without obtaining parental consent., now you give consent by clicking agree when making an account that’s required
 

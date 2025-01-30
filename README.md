@@ -62,6 +62,6 @@ Disclaimer: I also use to enjoy things like short videos etc..., I may say thing
 
 # whitepapers
 
-https://scholarship.law.duke.edu/cgi/viewcontent.cgi?article=1327&context=dltr&utm_
+https://scholarship.law.duke.edu/cgi/viewcontent.cgi?article=1327&context=dltr&utm
 
-https://ucr.fbi.gov/investigate/counterintelligence/higher-education-national-security?utm_
+https://ucr.fbi.gov/investigate/counterintelligence/higher-education-national-security?utm

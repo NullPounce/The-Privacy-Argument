@@ -58,3 +58,8 @@ Disclaimer: I also use to enjoy things like short videos etc..., I may say thing
 
 - In 2017, the FTC took action against VTech, a toy manufacturer, for collecting personal information from children without obtaining parental consent., now you give consent by clicking agree when making an account that’s required
 
+
+
+# whitepapers
+
+https://scholarship.law.duke.edu/cgi/viewcontent.cgi?article=1327&context=dltr&utm_source=chatgpt.com
